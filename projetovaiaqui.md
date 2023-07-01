@@ -1,0 +1,1 @@
+todas as ideias vai aqui
